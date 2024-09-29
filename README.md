@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xeorion
 - 👀 I’m interested in technology, coding, ingenireering.
-- 🌱 I’m currently learning on high school.
+- 🌱 I’m currently learning on college .
 - 💞️ I’m looking to collaborate on nothing 🤷‍♂️
 
 <!---
